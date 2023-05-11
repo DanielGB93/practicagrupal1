@@ -1,13 +1,3 @@
-# Antes de comenzar a preparar la mejor pizza del mundo debes tener a la mano los ingredientes necesarios. A continuación te los detallo:
-
-350 gr de harina de trigo (y un poco más para amasar)
-180 ml de agua.
-1 cucharadita de sal.
-½ cucharadita de levadura seca.
-2 ½ cucharaditas de aceite de oliva Olivetto® sabor intenso.
-6 cucharadas de salsa pomodoro.
-1 taza de mozzarella de búfala.
-2 tomates chontos pequeños, cortados en tajadas.
 En un bol ponemos la harina de trigo
 Se agrega en el centro de la harina una cucharada de levadura disuelta en agua
 Batimos con una cuchara de madera del centro hacia afuera
@@ -30,7 +20,7 @@ Unta la salsa de tomate sobre la masa de pizza, dejando un borde de aproximadame
 
 Espolvorea el queso mozzarella rallado sobre la salsa de tomate.
 
-Distribuye las rodajas de pepperoni sobrgie el queso.
+Distribuye las rodajas de pepperoni sobre el queso.
 
 Rocía un poco de aceite de oliva sobre la pizza.
 
