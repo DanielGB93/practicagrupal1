@@ -20,7 +20,7 @@ Unta la salsa de tomate sobre la masa de pizza, dejando un borde de aproximadame
 
 Espolvorea el queso mozzarella rallado sobre la salsa de tomate.
 
-Distribuye las rodajas de pepperoni sobre el queso.
+Distribuye las rodajas de pepperoni sobrgie el queso.
 
 Rocía un poco de aceite de oliva sobre la pizza.
 
